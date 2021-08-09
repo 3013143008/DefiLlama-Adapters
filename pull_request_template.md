@@ -1,3 +1,4 @@
+[DeFi  LIama   Flux申请上架.docx](https://github.com/DefiLlama/DefiLlama-Adapters/files/6954983/DeFi.LIama.Flux.docx)
 ##### Twitter Link:
 
 
